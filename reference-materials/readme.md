@@ -5,3 +5,6 @@
 
 ##### Charlottetown School Review - Public Meeting
 https://www.youtube.com/playlist?list=PL5nPPgwVtPPWi7M_m2c2zHUanC-0oo4Cz
+
+##### Island School Unity Meeting 
+https://youtu.be/dlbmwv5MNps
